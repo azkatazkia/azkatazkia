@@ -1,4 +1,4 @@
-# Introduction to My Life lol
+# Introduction to Myself lol
 ## Suppppp
 I'm **ooowzzzki**.\
 A student, a daughter, and a beabadoobee stan. 
