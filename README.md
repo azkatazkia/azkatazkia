@@ -11,7 +11,7 @@ I listen religiously to [You're here that's the thing](https://open.spotify.com/
 I am groot
 
 **Get in Touch**.\
-Follow ig guweh ngab @azkatazkia(https://www.instagram.com/azkatazkia/) 
+Follow ig guweh ngab [@azkatazkia](https://www.instagram.com/azkatazkia) 
  
 <p align="left">
 <a href="https://github.com/fahmimna">
